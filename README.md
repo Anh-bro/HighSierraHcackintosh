@@ -1,2 +1,0 @@
-# HighSierraHcackintosh
-ASUSFX503VD
